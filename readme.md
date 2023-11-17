@@ -1,1 +1,2 @@
-<h1>😂 LOL that was wrong readme new one will be updated soon with details</h1>
+<h1>😂 Bruhhhhhhhhhh</h1>
+machine learning codes for teit
